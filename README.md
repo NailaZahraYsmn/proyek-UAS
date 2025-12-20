@@ -8,8 +8,9 @@ Naila Zahra Yasmine(254311006)
 
 Dhea novika (254311009)
 
-link video 
+link video :
 
 berikut adalah link video ERD (https://youtu.be/SphRa01o4rU?si=AGYycuPOaI6F_xcK)
 
-berikut adalah link video skema 
+berikut adalah link video skema (https://youtu.be/3UbXzOPvDVk?si=1wR4fR-Eu7zZEWd_)
+
