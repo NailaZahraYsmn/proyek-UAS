@@ -14,3 +14,4 @@ berikut adalah link video ERD (https://youtu.be/SphRa01o4rU?si=AGYycuPOaI6F_xcK)
 
 berikut adalah link video skema (https://youtu.be/3UbXzOPvDVk?si=1wR4fR-Eu7zZEWd_)
 
+berikut adalah link video Database (https://youtu.be/MbvYx19qNAs)
